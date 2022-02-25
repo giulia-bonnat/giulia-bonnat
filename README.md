@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @giulia-bonnat
-- 👀 I’m interested in New Technologies & Communication & Arts in all its forms
+- 👀 I’m interested in Big Data | WomenInTechs | New Technologies | Communication | Arts in all its forms 
 - 🌱 I’m currently learning #Big Data @Actualízate Programm organized by Red.es | Fondo Social Europeo | Barrabés.biz | The Valley 
 - 📫 You can find me [here](https://www.linkedin.com/in/giuliabonnat/) 
 
